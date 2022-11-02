@@ -1,5 +1,5 @@
-Hi, I'm KC. 
-- I’m interested in digital media research and design.
+Hi, I'm KC. they/them.
+- I’m interested in science/medicine/tech rhetoric, digital media research, and design.
 - I’m currently learning UX design. I work in the nonprofit/government sector doing public relations and marketing.
 - Reach me via linkedin.com/kcmludwig
 
